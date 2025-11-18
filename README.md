@@ -17,3 +17,23 @@
 
 --> Estudo comparadao Peru - México, livro FGV;  
 
+# Aula 11/11 - Renata Albuquerque
+
+### Política Externa Brasileira para a África
+
+- Cooperação em biocombustíveis;
+- Entrevistas na África.
+- Aula muito boa (+ anotações no caderno).
+
+# Aula 18/11 - Mariana Bueno
+
+### Relações centro-periferia e os museus europeus
+
+- Nova ordem internacional ameaçada!
+- Museu como uma instituição eurocêntrica;
+- Restituição x repatriação;
+- 
+
+
+
+
