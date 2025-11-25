@@ -32,8 +32,15 @@
 - Nova ordem internacional ameaçada!
 - Museu como uma instituição eurocêntrica;
 - Restituição x repatriação;
-- 
 
+# Aula 25/11 - Ivi Elias
 
+### Planeta fome: regimes de produção e reprodução alimentar na política internacional
 
+- Início do debate político de segurança alimentar nos governos do PT;
+- Lente teórica do feminismo na tese;
+- Biopolítica da escassez (Foucault);
+- Não existe segurança alimentar sem as mulheres.
+
+  
 
